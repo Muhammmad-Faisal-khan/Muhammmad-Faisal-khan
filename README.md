@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Muhammmad-Faisal-khan
+- 👋 Hi, I’m @Muhammad-Faisal-khan
 - 👀 I’m interested in $
 - 🌱 I’m currently learning all programing languages.
 - 💞️ I’m looking to collaborate on ...
